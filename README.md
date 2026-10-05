@@ -1,0 +1,1 @@
+# manga-radar2
